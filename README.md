@@ -15,7 +15,7 @@
 - Water
 
 ## Contact us :
-- E-mail : snackbank55@gmail.com
+- E-mail : snackbankjo@gmail.com
 - [Instagram](https://www.instagram.com/ahmad_j_alsoub_/)
 
 
